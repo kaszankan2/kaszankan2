@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kaszankan2
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning Java
+- 📫 You can't reach me ...
